@@ -1,3 +1,3 @@
 # prog1
 
-https://repl.it/repls/SuburbanGranularEfficiency
+https://google.com
